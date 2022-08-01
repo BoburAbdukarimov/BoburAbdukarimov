@@ -22,4 +22,4 @@
 
 - 📍 &nbsp; Current location: Uzbekistan Anywhere
 - 📝&nbsp; Ask me about anything, I am happy to help
-- 📨&nbsp; How to reach me: [@azizbekkhabibullaev_](https://t.me/Boburiy1)
+- 📨&nbsp; How to reach me: [@BoburAbdukarimov_](https://t.me/Boburiy1)
